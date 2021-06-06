@@ -1,2 +1,2 @@
 # Project-Living
-It's an art project.
+t's not yet done please skip this repository😇
